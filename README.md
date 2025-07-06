@@ -8,6 +8,6 @@
 
 🎯 Current Goals: I'm working on various projects to hone my skills in AI development, and I'm keen on contributing to open-source projects related to machine learning and data science.
 
-🎹 Hobbies: In my free time, I'm learning to play the keyboard, and I enjoy exploring new tech trends.
+🎹 Hobbies: In my free time, I watch movies, and I enjoy exploring new tech trends.
 
 📫 Let's Connect: Email  vamshiryadav@gmail.com
